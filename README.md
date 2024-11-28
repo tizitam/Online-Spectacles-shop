@@ -1,2 +1,2 @@
 # Online-Spectacles-shop
-Get your choicespectacle today!
+Get your choice spectacle today!
